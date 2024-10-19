@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Python
 - 🤔 I’m looking for help with literlly everything lol
 - 💬 Ask me about Linux
-- 📫 How to reach me: raydeanhudson@protonmail.com
+- 📫 How to reach me: contact@rayhudson.dev
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I was born at exatly 0:00
 
